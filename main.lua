@@ -11,6 +11,11 @@
     Ik how fast you and your respectfull devs are going to patch this.
     Just know that there are people who hack games as a hobby and then beacome devs making anti cheats.
 
+Heres a reason to let me work on your wonderfull game!!!
+	1: I work for free (In a hobby sort of way)
+	2: I have been playing this game since it was made
+	3: I bypassed your anti cheat after using up 4 accounts on refinery caves 2. I think I can bring my scripting skills to the table with that. 
+
 --]]
 
 
